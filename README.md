@@ -5,7 +5,8 @@ You can click the Preview link to take a look at your changes.
 --->
 
 
-![photo_2024-06-19_23-04-29](https://github.com/break1145/break1145/assets/131873684/84df595a-ad61-4c49-a31c-12a00522938a)
+![0af24877a6edf3c1242ba4e0430b946d_720](https://github.com/user-attachments/assets/7a57a210-7e83-44be-85a4-9cd17bd90f3f)
+
 - 👋 Hi, I’m @break1145
 - 👀 I’m interested in sex
 - 🌱 I’m currently learning sex
